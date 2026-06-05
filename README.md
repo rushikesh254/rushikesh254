@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 3rd Year B.Tech CSE @ MNNIT Allahabad<br>💻 Web Developer • Aspiring Software Engineer<br>🛠️ Building real-world projects with clean code & scalable systems<br>🚀 Open to work | Internships • Freelance • Full-time
+🎓 4th Year B.Tech CSE @ MNNIT Allahabad<br>💻 Web Developer • Aspiring Software Engineer<br>🛠️ Building real-world projects with clean code & scalable systems<br>🚀 Open to work | Internships • Freelance • Full-time
 
 
 ## 🌐 Socials:
